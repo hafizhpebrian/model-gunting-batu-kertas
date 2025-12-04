@@ -1,0 +1,1 @@
+# model-gunting-batu-kertas
